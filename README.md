@@ -32,7 +32,7 @@ Second, I don’t trust myself to successfully navigate and interpret the medica
 
 Third, whenever possible, I stay away from opinion because I don’t believe that being a detransitioner gives my opinion more weight than others’. So, questions like “do you think autogynephiles should be denied hormones” and “is anyone really trans” are out, too. Of course there’s some subjectivity involved even in reporting my own experience, but I stick to the facts when possible. That being said, I make an exception in my message to transitioners and give some advice (which is necessarily an opinion) because, as imperfect as I am, I think that if I had read that message when I was younger it would have helped me out.
 
-If you have a question, send me an [email](mailto:detransqa@protonmail.com).
+If you have a question, send me an [email](mailto:detransqna@protonmail.com).
 
 ### Why did you transition and why did you stop? <a name="whytransition"></a>
 
